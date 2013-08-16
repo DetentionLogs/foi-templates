@@ -1,5 +1,3 @@
-Dear Sir/Madam,
-
 Under the Freedom of Information Act 1982 (Cth) I request the following:
 
 $description of document requested
